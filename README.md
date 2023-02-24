@@ -1,0 +1,1 @@
+# Hesitancy-about-SARS-CoV-2-rapid-antigen-testing-in-China
